@@ -1,6 +1,6 @@
-Hi there! My name is Sirkew Chakma and I am an experienced web developer with over 3 
+Hi there! My name is Sirkew Chakma and I am an experienced web developer with over 6 
  
-years of experience in the industry. I have a proven track record of delivering high-quality
+months of experience in the industry. I have a proven track record of delivering high-quality
 
  web development projects on time and within budget, and I am confident in my ability to help
  
